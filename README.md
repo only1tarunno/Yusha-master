@@ -1,1 +1,1 @@
-https://only1tarunno.github.io/Yusha/
+https://only1tarunno.github.io/Yusha-master/
